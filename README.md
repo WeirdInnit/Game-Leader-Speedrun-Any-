@@ -1,2 +1,2 @@
-# Game-Leader-Speedrun-Any-
+# Super-League-Speedrun
 School offers "Super League" rank i want it
